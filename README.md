@@ -3,8 +3,11 @@
 - 🌱 I’m always learning. 
 - 📫 How to reach me 
   📍 📩 olegvinokurov(📧)hotmail.com
+  
   📍 📳 2️⃣1️⃣3️⃣ 3️⃣0️⃣4️⃣ 6️⃣1️⃣5️⃣3️⃣
+  
   📍 🔗 https://www.linkedin.com/in/vinokurov
+  
   
 
 <!---
