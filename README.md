@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ovinokurov
+- 👋 Hi, I’m Oleg
 - 👀 I’m interested in Technology and Brazilian Jiu Jitsu
 - 🌱 I’m always learning. 
 - 📫 How to reach me 
